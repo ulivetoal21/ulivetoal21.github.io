@@ -18,3 +18,5 @@ Con scatola cartone effetto liscio
                         
 1 Lattina in banda stagnata (5 litri)
 Con scatola cartone effetto liscio
+
+Materiali ad alto valore riciclabile.
